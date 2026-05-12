@@ -1,4 +1,4 @@
-# 
+# exclusive Plugin for Affinity Designer for PC | Affinity Designer for Windows - real-time-preview and vector-effects is the best Affinity Designer for PC | Affinity Designer for
 
 
 
